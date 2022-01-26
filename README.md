@@ -21,7 +21,7 @@ __Md. Rony-Hossain__ <br>
 __Email :__ [ ronyinfu@gmail.com ](mailto:ronyinfu@gmail.com) <br>
 __Github :__ [Rony Hossain](https://github.com/Ronyinfu)<br>
 __Facebook :__ [মোঃ রনি হোসেন ](https://www.facebook.com/Ronyinfu/) <br>
-__Linkedin :__ [Rony Hossain](https://www.linkedin.com/in/ronyinfu/)
+__Linkedin :__  [Rony Hossain](https://www.linkedin.com/in/ronyinfu/)
 <br>
 <br>
 
